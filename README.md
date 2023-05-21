@@ -14,20 +14,25 @@ Vouches:
 Previous Tools i have Made/Owned:
 
 ・Glitched (Made in Early 2021)
+
 ![image](https://github.com/B8INYAA/WhoAmI/assets/117551519/1ced4cf1-042d-4e71-8d9f-e3bd72540750)
 ![image](https://github.com/B8INYAA/WhoAmI/assets/117551519/3402d8b4-147a-4ae7-b932-a7ac6f94dc87)
 
 ・Pixcon (Made in late 2021)
+
 ![image](https://github.com/B8INYAA/WhoAmI/assets/117551519/524a9810-fcfe-480c-a0ab-66d79288e359)
 
 ・Discordify (Made in Late 2021)
+
 ![image](https://github.com/B8INYAA/WhoAmI/assets/117551519/804c0b0e-e9de-4bc4-90e6-c6900cc0cadb)
 
 ・EasyEdit (Made in Late 2021)
+
 ![image](https://github.com/B8INYAA/WhoAmI/assets/117551519/126c498c-4a29-44c2-be40-0626c5bb5ed6)
 
 ・BlingAIO (Made in Late 2021)
-- lol i cant find any pictures of blingaio it was made for a friend
+
+ lol i cant find any pictures of blingaio it was made for a friend
 
 ・Proxify
 ![image](https://github.com/B8INYAA/WhoAmI/assets/117551519/282f7c2b-e4e0-4324-ae6c-c60c2ae73a95)
