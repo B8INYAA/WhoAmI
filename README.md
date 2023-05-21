@@ -30,9 +30,7 @@ Previous Tools i have Made/Owned:
 
 ![image](https://github.com/B8INYAA/WhoAmI/assets/117551519/126c498c-4a29-44c2-be40-0626c5bb5ed6)
 
-・BlingAIO (Made in Late 2021)
-
- lol i cant find any pictures of blingaio it was made for a friend
+・BlingAIO (Made in Late 2021) (lol i cant find any pictures of blingaio it was made for a friend)
 
 ・Proxify
 ![image](https://github.com/B8INYAA/WhoAmI/assets/117551519/282f7c2b-e4e0-4324-ae6c-c60c2ae73a95)
